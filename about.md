@@ -1,7 +1,7 @@
 ---
 layout: page
-title: About
-permalink: /¡Bienvenido!/
+title: ¡Bienvenido!
+permalink: /about/
 ---
 Hola, mi nombre es Julio y por ahora me encuentro en Guanajuato, México. 
 
