@@ -7,8 +7,8 @@ Hola, mi nombre es Julio y por ahora me encuentro en Guanajuato, México.
 
 Este es mi blog personal. Laboratorio de ideas. Prótesis cognitiva.
 
-### Sobre éste blog
-Este es un blog opuesto a lo que se suele llamar "blog de nicho". No hay tema principal, es más bien un reflejo y un registro de intereses personales y también, un honesto intento de conectar con quien sea que encuentre algo de valor por aquí.
+### Sobre el blog
+Este es un blog "anti-nicho": no hay un tema o línea a seguir. La idea es que este espacio sea tan diverso como los intereses que compiten por captar mi atención. También, busca ser un honesto intento de conectar con quien sea que encuentre algo de valor por aquí.
 
 
 ### Contáctame
