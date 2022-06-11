@@ -1,6 +1,6 @@
 ---
 layout: post
-title: ¿Por qué escribir un blog? 
+title: ¿Por qué comenzar un blog? 
 ---
 Aquí dejo algunas reflexiones sobre mi proceso personal para comenzar este blog y comento un poco sobre los primeros pasos prácticos que tomé para concretar esta primera versión de un blog. Si estás tratando de decidir si es buena idea para ti comenzar un blog y cómo podrías empezarlo sin invertir demasiado (a manera de "prueba piloto"), quizá este artículo te puede ser de ayuda.
 
