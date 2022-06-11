@@ -34,7 +34,7 @@ Por que así puedo tener más y mejores opciones para escoger proyectos profesio
 
 *¿Por qué tener más y mejores opciones de proyectos profesionales?
 
-Por que es un forma de propiciar mi crecimiento personal.
+Por que es una forma de propiciar mi crecimiento personal.
 
 La iteración de *por qués* de arriba es un intento (no muy bueno) de representar el flujo de ideas que tuve respecto a la cuestión de comenzar el blog. Creo que es poco realista pensar que el proceso pueda ser así; lo que aquí muestro es algo más bien esquemático. En realidad, se trata de tener un diálogo honesto con nosotros mismos, hasta llegar a la *médula*. Pero creo que la idea se puede captar. 
 
