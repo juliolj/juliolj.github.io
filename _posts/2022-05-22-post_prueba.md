@@ -45,7 +45,7 @@ Así, en mi caso llegué a la conclusión de que iniciar un blog podía ser un e
 * Eliminar restricciones espacio-temporales para conectar con nuevas personas.
 * Adquirir la disciplina necesaria para tener una consistencia al menos *decente* en la generación de contenido.
 * Generar algo de valor que pueda ser de utilidad para alguien más.
-* Retribuir en algo, aunque sea poquísimo, a la comunidad de la que yo tantas veces he obtenido un invaluable provecho.
+* Retribuir en algo, aunque sea poquísimo, a la comunidad de la que yo tantas veces he obtenido invaluables beneficios.
 * Y otras 10,000 cosas de las que por ahora ni siquiera soy consciente.
 
 Sobra decirlo, pero en este proceso no hay respuestas incorrectas; Tus respuestas, para nada, tienen que ser como las mías. ¿Cómo saber que has dado con las *buenas* respuestas? Aquí no hay reglas, pero he notado un cierto patrón: cuando estoy en la guerra de los *porqués*, algunas respuestas, en mi interior, me saben más como a preguntas. Por ejemplo, la respuesta "Por que es importante tener una presencia *online*" en mi cabeza suena más como: ¿Por que es importante tener una presencia *online*? Incluso mi voz interior hace la entonación de pregunta, a pesar de que se supone que es una respuesta. Por el contrario, cuando llego a mis *verdaderas* respuestas, éstas suenan mucho más a una respuesta *real*, son más decisivas. El signo de interrogación transmuta a signo de exclamación. Al final del día, las *buenas* respuestas son aquéllas que mejor te empujan a tomar una decisión (en un sentido u otro) y a la acción que corresponde.
