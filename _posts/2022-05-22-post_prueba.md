@@ -36,7 +36,7 @@ Por que así puedo tener más y mejores opciones para escoger proyectos profesio
 
 Por que es una forma de propiciar mi crecimiento personal.
 
-La iteración de *por qués* de arriba es un intento (no muy bueno) de representar el flujo de ideas que tuve respecto a la cuestión de comenzar el blog. Creo que es poco realista pensar que el proceso pueda ser así; lo que aquí muestro es algo más bien esquemático. En realidad, se trata de tener un diálogo honesto con nosotros mismos, hasta llegar a la *médula*. Pero creo que la idea se puede captar. 
+La iteración de *por qués* de arriba es un intento (no muy bueno) de representar el flujo de ideas que tuve respecto a la cuestión de comenzar el blog. Creo que es poco realista pensar que el proceso pueda ser así; lo que aquí muestro es algo más bien esquemático. Pero creo que la idea se puede captar. En realidad, se trata de tener un diálogo honesto con nosotros mismos, hasta llegar a la *médula*.  
 
 Así, en mi caso llegué a la conclusión de que iniciar un blog podía ser un ejercicio interesante en términos de *crecimiento personal*, el cual es un término comodín, que puede representar casi cualquier cosa para distintas personas. Para mí, y en su relación al hecho de comenzar un blog, el término *crecimiento personal* hace referencia a cosas tan diversas como: 
 
