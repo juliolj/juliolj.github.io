@@ -8,7 +8,7 @@ Aquí escribo algunas reflexiones sobre el proceso personal que me llevó a come
 
 Ha pasado ya un largo tiempo desde que empecé a considerar la idea de iniciar un blog. Como siempre, los motivos para procrastinar son variados; algunos son conscientes (que más bien son pretextos) y otros viven soterrados en el subcosciente (más decisivos). A nivel consciente, algunas cuestiones que me frenaban de empezar el blog eran:
 
-1. ¿Comienzo un blog *de nicho* o algo de interés personal?, ¿Cuál nicho escoger?
+1. ¿Comienzo un blog *de nicho* o voy explorando temas *al vuelo*?, ¿Cuál nicho escoger?
 2. En la parte técnica, no tengo mucha idea de qué se necesita, ¿Hosting?, ¿Un dominio?, ¿Wordpress?, ...
 3. Dado que comenzar un blog representa una inversión de tiempo, y quizá de otros recursos, ¿Valdrá la pena el esfuerzo?, ¿Debo considerar la idea de monetizarlo?, ¿Cómo?
 4. Francamente, ¿el mundo necesita un blog más?
