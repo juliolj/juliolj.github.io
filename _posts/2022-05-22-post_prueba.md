@@ -18,8 +18,6 @@ Y la lista sigue. Cada vez que pensaba en ello se me ocurrían nuevas preguntas,
 
 ## Entonces, ¿Por qué?
 
-Una vez que tus respuestas al ¿por qué? son convincentes, éstas se vuelven también funcionales. Esto es, algunas de las respuestas a las preguntas 1, 2, 3, 4, ... obtienen una respuesta inmediata. Pero más importante, se vuelve evidente que no es necesario tener todas las respuestas para poder empezar, y que lo realmente importante es, pues éso, empezar. 
-
 *¿Por qué inciar un blog?*
 
 Porque es importante tener una presencia *online*.
@@ -49,6 +47,8 @@ Así, en mi caso llegué a la conclusión de que iniciar un blog podía ser un e
 * Y otras 10,000 cosas de las que por ahora ni siquiera soy consciente.
 
 Sobra decirlo, pero en este proceso no hay respuestas incorrectas; tus respuestas, para nada, tienen que ser como las mías. ¿Cómo saber que has dado con las *buenas* respuestas? Aquí no hay reglas, pero he notado un cierto patrón: cuando estoy en la guerra de los *porqués*, algunas respuestas, en mi interior, me saben más como a preguntas. Por ejemplo, la respuesta "Porque es importante tener una presencia *online*", en mi cabeza suena más como: ¿Porque es importante tener una presencia *online*? Incluso mi voz interior hace la entonación de pregunta, a pesar de que se supone que es una respuesta. Por el contrario, cuando llego a mis *verdaderas* respuestas, éstas suenan mucho más a una respuesta *real*, son más decisivas. El signo de interrogación transmuta a signo de exclamación. Al final del día, las *buenas* respuestas son aquéllas que mejor te empujan a tomar una decisión (en un sentido u otro) y a la acción que corresponde.
+
+Una vez que tus respuestas al ¿por qué? son convincentes, éstas se vuelven también funcionales. Esto es, algunas de las respuestas a las preguntas 1, 2, 3, 4, ... obtienen una respuesta inmediata. Pero más importante, se vuelve evidente que no es necesario tener todas las respuestas para poder empezar, y que lo realmente importante es, pues éso, empezar. 
 
 ## Me he convencido, ¿ahora qué?
 
