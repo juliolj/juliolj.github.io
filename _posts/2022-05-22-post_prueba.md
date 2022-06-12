@@ -28,11 +28,11 @@ Porque es importante tener una presencia *online*.
 
 Porque me puede dar mayor *visibilidad* en el ámbito profesional.
 
-*¿Por qué quieres tener mayor visibilidad en el ámbito profesional?
+*¿Por qué quieres tener mayor visibilidad en el ámbito profesional?*
 
 Por que así puedo tener más y mejores opciones para escoger proyectos profesionales.
 
-*¿Por qué tener más y mejores opciones de proyectos profesionales?
+*¿Por qué tener más y mejores opciones de proyectos profesionales?*
 
 Por que es una forma de propiciar mi crecimiento personal.
 
